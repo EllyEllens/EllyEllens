@@ -1,7 +1,8 @@
 ## Hi, I'm Ielaiza ✨
 
-🎓 4th year MBO Application Development<br>
-📚 Application Development | Project Management<br>
+🎓 BSc AI & Machine Learning Student <br>
+📚 Software Developer | Project Manager | Facilitator <br>
+📍 Suriname Paramaribo <br>
 
 
 
